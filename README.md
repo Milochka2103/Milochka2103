@@ -1,6 +1,5 @@
 - 👋 Hi, I’m Liudmyla Tatarenko
 - 👀 I’m interested in learning IT:)
-- 🌱 I’m currently learning React.JS:)
 - 💞️ I’m looking to collaborate on good company, I really want to become a good profeessional.
 - 📫 How to reach me: my tel:+380687090004;+380730703053 email:liudmyla.tatarenko@gmail.com
 
