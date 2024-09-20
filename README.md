@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Liudmyla Tatarenko
 - 👀 Looking for a job:)
-- 💞️ I’m looking to collaborate on good company, I really want to become a good profeessional.
+- 💞️ I’m looking to collaborate on good company, I really want to become a good professional.
 - 📫 How to reach me: my tel:+380730703053; +48788565322; email:liudmyla.tatarenko@gmail.com
 
 <!---
